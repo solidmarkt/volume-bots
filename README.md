@@ -28,7 +28,7 @@
 
 ✅ Without any ban, error or blacklist!
 
-✅ DM me for more info.
+✅ DM for more info.
 ---------------------------------------------------------------------------------------------------------------
 
 **Telegram channel:** https://t.me/solid_marketing
