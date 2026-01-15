@@ -28,7 +28,10 @@
 
 ✅ Without any ban, error or blacklist!
 
+✅ 2026 version
+
 ✅ DM for more info.
 ---------------------------------------------------------------------------------------------------------------
 
 **Telegram channel:** https://t.me/solid_marketing
+
